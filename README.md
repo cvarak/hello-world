@@ -9,3 +9,4 @@ pls bring plata with spek and also olives
 nema plate za tebe debela
 
 pls giff olive && sreatn rodendan kruno <3
+oooo hvala
