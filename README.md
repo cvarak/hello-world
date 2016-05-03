@@ -1,3 +1,3 @@
 # hello-world
-fuuuj čvarci
+ferovac prestani srat
 volim cvarke i spek
